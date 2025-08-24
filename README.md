@@ -3,6 +3,6 @@
 https://alexielardilla.github.io/my_cv_online/
 
 ## Autor: ✒️
-* [Alejandro G. Vera](https://linkedin.com/in/alejandro-gonzalo-vera/)
+
 <br/></br>
 # Enjoy!
